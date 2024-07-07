@@ -9,7 +9,6 @@
 is a geography teacher at the High School Affiliated to Shenzhen University of Technology. She has a master's degree from the National University of Singapore. Her research interests are quantitative studies of socio-cultural geography in relation to spatial justice.
 
 
-
 If you are interested in any aspect of her, please email her at - *e0792353\[at]u\[dot]nus\[dot]edu*
 
 ## Academic Background
